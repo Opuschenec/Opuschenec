@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ..wqdjoifvgmew
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me .ogfgjhjujvgnwe
-- 😄 Pronouns: .fdbgrgrfgvk)
+- 😄 Pronouns: .fdregwefr
 - ⚡ Fun fact: .
 !---
 Opuschenec/Opuschenec is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
