@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Opuschenec)))
 - 👀 I’m interested in manis
-- 🌱 I’m currently learning ..hfjm,fhmkfygumk
+- 🌱 I’m currently learning ..hfjmhyugt6fyguh
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me .njhyuhiok
 - 😄 Pronouns: .hbgtrfsht
