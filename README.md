@@ -2,7 +2,7 @@
 - 👀 I’m interested in manis
 - 🌱 I’m currently learning ..nuyhobohb
 - 💞️ I’m looking to collaborate on ..
-- 📫 How to reach me .njhyuhiok
+- 📫 How to reach me .gftrdtfyyuioj
 - 😄 Pronouns: .hbgtrfsht
 - ⚡ Fun fact: .
 !---
